@@ -1,10 +1,10 @@
-#Anak Kontol Biasanya Anak Reocder#Enc By Mr.Risky
-#Enc By Dumai-991
-#==========================>>>>> Mr.Risky
+#Anak Kontol Biasanya Anak Reocder#Enc By Mr.Xxx
+#Enc By Xxx
+#==========================>>>>> Mr.Xxx
 # WAKTU DIENC   : 09-07-2021
 # PESAN Owner   : Jangan DiEdit
-#==========================>>>>> Mr.Risky
-# Text Tambahan : 
+#==========================>>>>> Mr.Xxx
+# Text Tambahan : Lo Kaya kontol makasih
 #
 #
 
